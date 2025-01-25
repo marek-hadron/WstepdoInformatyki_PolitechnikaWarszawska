@@ -1,0 +1,2 @@
+# WstepdoInformatyki_PolitechnikaWarszawska
+projekt na studia
